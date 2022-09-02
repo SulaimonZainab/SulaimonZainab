@@ -8,6 +8,6 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on everything data analysis and project.
 - 🤔 I’m looking for help with breaking down technical concepts.
 - 💬 Ask me about my learning Journey, I would love to share with you.
-- 📫 How to reach me: https://gmail.com/damilola@gmail.com
+- 📫 How to reach me: https://gmail.com/damilolazainab707@gmail.com
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: I can learrn playfully
